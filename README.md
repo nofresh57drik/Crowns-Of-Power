@@ -223,4 +223,4 @@ Crowns of Power is offered as a full free version with all features and updates 
 Ready to embark on your magical adventure? Download Crowns of Power now and unleash your powers in this enchanting MMORPG!
 
 ---
-**Last updated:** 2026-09-22 14:30:36 UTC
+**Last updated:** 2026-09-22 18:38:01 UTC
